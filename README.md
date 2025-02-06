@@ -7,8 +7,7 @@
 - ⚡ Fun fact: I'm a very talented artist and I have autism!
 - 🎃 My nickname is: BrookieFan84!
 
-I AM NOT SLING!!!!
-
+I AM NOT SLING!!!! (Also if you have ANY allegations against you than mabye don't contact me..)
 <!---
 OrangePumpkin-01/OrangePumpkin-01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
